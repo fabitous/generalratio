@@ -1,1 +1,3 @@
-"# generalratio" 
+"# generalratio"
+
+©
